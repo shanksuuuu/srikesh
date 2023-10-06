@@ -1,3 +1,3 @@
 # srikesh
 
-click to visit website : https://shanksuuuu.github.io/srikesh/form1.html
+click to visit website : https://shanksuuuu.github.io/srikesh/f2.html
